@@ -149,4 +149,4 @@ Server IP address = 217.115.0.0. Wait...
 276: Оплатил и получил товар.
 ```
 
-![](https://i.pinimg.com/564x/44/a3/d9/44a3d9d6e8d57f0554d643ddcd55104d.jpg)
+![](https://i.pinimg.com/564x/99/52/c4/9952c482a3c87c7b9d5ef17435b5f3e2.jpg)
